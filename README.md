@@ -3,7 +3,7 @@
 ###
 
 <div align="center">
-  <img src="https://i.ibb.co/2tPmbtw/codewithmasa-banner.png" height="200" alt="CODE WITH MASA Banner" />
+  <img src="https://c.top4top.io/p_3560n0o481.jpg" height="200" alt="CODE WITH MASA Banner" />
 </div>
 
 ###
